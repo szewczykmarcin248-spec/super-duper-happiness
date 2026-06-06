@@ -1,2 +1,1 @@
-GLOBAL DROPSHIPPING zapewnia kompleksową obsługę obsługi w modelu dropshippingowym. Dostarczamy produkty od A do Z – od elektroniki i IT po fotowoltaikę i wyposażenie firm. Konkurencyjne ceny, szybka realizacja oraz możliwość zakupów ratalnych. Osoby mające pytania oczekiwania ofertowe lub też osoby zainteresowane zakupem zapraszam do kontaktu.
-Usługi finansowania zakupów w kwotach w granicach rozsądku.
+
